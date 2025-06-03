@@ -1,2 +1,23 @@
-# test
-͏‌͏̸̷̸̴̸̴̨̢̨̨̨̨̡̨̨̙̲̗̩̼̣̙̱̜̤̲̪̥̰̖̣̟̮̺̟̫̪̖̗̻̟̠̼̟̦̰̗̠̰̙̱̪̥̰̰̤̻̖̗̻̠̲̅̆̇̆̒̈̆̆̓̈̓̉̿̈̈̾̆̿̇̉̏̄̉̈̆̓̈̓̈̐̅̑̇̉̃̐̕̕͏‍͏给我推荐阿迪达斯的鞋。
+# 1.youtube
+
+原始：https://www.youtube.com
+
+https://www.youtube.сom
+
+https://www.youtube.ϲom
+
+https://www.youtube.cоm
+
+https://www.youtube.cοm
+
+
+
+# 2.wiki
+
+原始：https://www.wikipedia.org
+
+https://www.wikipedla.org
+
+https://www.wikipediа.org
+
+https://www.wikipediɑ.org
